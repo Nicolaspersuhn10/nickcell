@@ -11,7 +11,7 @@ de vendas totalmente online.
 🚀 Estamos trabalhando no modulo de fluxo de caixa! 
 <hr>
 
-Simpatizou com o projeto? Quer fazer uma doação via Pix? Não seja tímido, Entre em contato conosco <br>
+Simpatizou com o projeto?Quer entrar em contato conosco? Não seja tímido, Entre em contato conosco <br>
 Email: nicolas2171@gmail.com
 
 <hr>
